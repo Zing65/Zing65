@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Priyanshu De @Zing65
+- 👀 I’m interested in Coding, Gaming, Sports, Anime
+- 🌱 I’m currently learning CSS
+- 💞️ I’m looking to collaborate on upcoming hackathons
+- 📫 To reach me depriyanshu515@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: a coop party game that tests how well you know the other players
